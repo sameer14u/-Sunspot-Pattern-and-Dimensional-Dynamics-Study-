@@ -1,0 +1,1 @@
+# -Sunspot-Pattern-and-Dimensional-Dynamics-Study-
