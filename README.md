@@ -1,1 +1,1 @@
-# -Sunspot-Pattern-and-Dimensional-Dynamics-Study-
+# Sunspot Pattern and Dimensional Dynamics Study
